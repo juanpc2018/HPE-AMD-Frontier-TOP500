@@ -23,4 +23,4 @@ People that built that seems so Naive...
 
 https://youtu.be/yLgMsqjsj58
 https://youtu.be/OWwOJlOI1nU
-
+https://youtu.be/HNy3ZyiBp34?t=14
